@@ -170,7 +170,8 @@ Penjelasan:<br>
 
 - Untuk melihat pembahasan silahkan klik link di bawah ini:
 
-1. Video sedang proses edit, Mohon bersabar
+1. Link Video sedang proses edit, Mohon bersabar...
+2. Link pdf https://drive.google.com/file/d/10VALyqjU1YkYULz_PGE6CPNV7VEy0aUf/view?usp=drivesdk
 
 Cukup sekian Penjelasan dari saya.
 
